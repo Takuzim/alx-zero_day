@@ -1,1 +1,1 @@
-ndakanzwa izwi richiti ucharamba uchipisah
+hoyoo ndakanzwa izwi richiti ucharamba uchipisah
