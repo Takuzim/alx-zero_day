@@ -1,1 +1,1 @@
-My first readme
+ndakanzwa izwi richiti ucharamba uchipisah
